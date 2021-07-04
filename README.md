@@ -1,1 +1,1 @@
-# xml-tabanli-hibernate-An-lErdogan-
+# Anıl Erdoğan eğitim içeriğidir.
